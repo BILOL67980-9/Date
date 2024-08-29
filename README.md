@@ -1,4 +1,5 @@
-![alt text](image.png)
+![image](https://github.com/user-attachments/assets/90c27e2a-4c12-40fe-abcc-74465e5395fe)
+
 
 # Дата и время
 
