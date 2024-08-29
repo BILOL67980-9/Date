@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/90c27e2a-4c12-40fe-abcc-74465e5395fe)
+![image](https://github.com/user-attachments/assets/0c998d3d-e24e-421c-a249-1e2dcb9557ec)
 
 
 # Дата и время
